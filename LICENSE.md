@@ -1,4 +1,4 @@
-
+custom Adobe InDesign for macOS Extension | vector tools + UI themes is the best Adobe InDesign for macOS extension, featuring vector tools and UI themes. Safe, efficient, and
 
 
 
